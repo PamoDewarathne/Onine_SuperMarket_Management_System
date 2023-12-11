@@ -1,1 +1,1 @@
-# Onine_SuperMarket_Management_System![cashier ss](https://github.com/PamoDewarathne/Onine_SuperMarket_Management_System/assets/127833414/ef363f95-bada-4058-9d48-6ac078cc7563)![cashier ss](https://github.com/PamoDewarathne/Onine_SuperMarket_Management_System/assets/127833414/88f6ef1c-8832-4043-819c-98117284e8c4)
+# Onine_SuperMarket_Management_System![cashier ss](https://github.com/PamoDewarathne/Onine_SuperMarket_Management_System/assets/127833414/ef363f95-bada-4058-9d48-6ac078cc7563)
